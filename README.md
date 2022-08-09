@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @g00fy57
-- 👀 I’m interested in Artificial Intelligence and Pure Mathematics 
+- 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently learning Artificial Intelligence
 - 💞️ I’m looking to collaborate on AI Projects
 - 📫 How to reach me @kushmon82@gmail.com/ +917678234484
